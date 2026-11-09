@@ -1,2 +1,2 @@
-# Sai-milk-parler
+# Sai-milk-parlour
 Fresh milk and curd 
